@@ -1,7 +1,7 @@
 # Elena {#elena}
 
 
-My first unfinished love was called Elena.
+My first unfinished love was called Elena. 
 
 I wasn’t more than six. Back on those days, my nose used to bleed in a way that was more difficult to hide and more prone to be revealed. I never wanted to be one of those kids that played around with two big balls of toilet paper poking out their nostrils. I thought they were ridiculous. Their lack of self-control was unmasked by two white-becoming-red signals in the middle of the face. Specifically, one of those kids was called Alado. Alado was supposed to be my friend in certain specific situations. But let’s not rush things, we will come back to him.
 
