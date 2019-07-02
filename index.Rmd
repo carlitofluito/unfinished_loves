@@ -1,5 +1,5 @@
 --- 
-title: "My first-time taking ecstasy"
+title: "Unfinished loves"
 author: "Carlos Alcala a.k.a. Carlito Fluito"
 date: "`r Sys.Date()`"
 site: bookdown::bookdown_site
@@ -7,7 +7,7 @@ documentclass: book
 bibliography: [book.bib]
 biblio-style: apalike
 link-citations: yes
-github-repo: carlitofluito/ecstasy
+github-repo: carlitofluito/unfinished_loves
 description: "My most therapeutic book ever written."
 ---
 
