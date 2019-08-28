@@ -71,23 +71,4 @@ Fortunately, or not, a bit later the Scouters shouted the word that made us all 
 
 Years later, I read Neil Strauss' theory about how those adults that are naturally good with women are the ones that had these sort of pseudo-sexual experiences in their childhood. In my case, it was basically a few kisses with the two most beautiful and popular girls of the group and see one of the ugliest moving around showing us her ass and her genitals. Therefore, supporting his quite accurate theory, once I reach my teenagerhood and young adulthood, I wasn’t the best with women, but I wasn’t the worse either. 
 
-It is interesting how this and many other situations got cyclical over the following years. I was attractive to many of them, but I wasn’t very good at reading their signals. I was able to kiss some but unable to maintain my relationship. I had some sexual encounters that I am proud of, and many others that I better write and forget. I end up either having sex with girls I didn’t really like; kissing but not evolving the interaction with those that I liked; and, consciously or unconsciously, running, chasing, and drifting so many opportunities that would be pleasurable to read to one of the most famous
-theorists of the history of psychology. 
-
-
-
-
- 
-
-
-
-
-
-
-
-
- 
-
-
-
-
+It is interesting how this and many other situations got cyclical over the following years. I was attractive to many of them, but I wasn’t very good at reading their signals. I was able to kiss some but unable to maintain my relationship. I had some sexual encounters that I am proud of, and many others that I better write and forget. I end up either having sex with girls I didn’t really like; kissing but not evolving the interaction with those that I liked; and, consciously or unconsciously, running, chasing, and drifting so many opportunities that would be pleasurable to read to one of the most famous theorists of the history of psychology. 
